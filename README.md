@@ -1,4 +1,4 @@
-# Hi there! I'm Nikita Kumari.  
+# Hi there! I'm Nikita Kumari ✨  
 
 🚀 **Passionate about building, learning, and innovating!**  
 🎓 Computer Science Student at Delhi Technological University.   
