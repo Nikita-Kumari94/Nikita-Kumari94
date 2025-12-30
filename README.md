@@ -1,7 +1,7 @@
 # Hi there! I'm Nikita Kumari ✨  
 
 🚀 **Passionate about building, learning, and innovating!**  
-🎓 Computer Science Student at Delhi Technological University.   
+🎓 Computer Science Engineering Student at Delhi Technological University.   
 🚗 Active Member of the Society of Automotive Engineers (SAE) DTU.
 
 ---
